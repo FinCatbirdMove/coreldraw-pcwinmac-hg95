@@ -1,4 +1,4 @@
-# 
+# Mejor CorelDRAW plugins para Mac OS | Oficial CorelDRAW plugins para PC Windows. Con comprobación previa y herramienta manchar — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
